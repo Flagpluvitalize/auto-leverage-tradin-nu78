@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered auto-leverage trading bot Tool | position-sizing + multi-exchange-support, the #1 auto-leverage trading bot. Includes position-sizing and
 
 
 
